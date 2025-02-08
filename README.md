@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @nayatii25
+- 👀 I’m student
